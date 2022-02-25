@@ -1,2 +1,0 @@
-# zavqiddin
-super
